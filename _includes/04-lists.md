@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Elephants
+2. Sri Lanka
+3. Italian Food
